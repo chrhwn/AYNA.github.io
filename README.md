@@ -1,1 +1,0 @@
-# AYNA.github.io
